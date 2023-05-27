@@ -1,5 +1,5 @@
 # Albaniel, Alexander James
-![](https://github.com/jncrlmrsgn/app-dev/blob/resume/image_2022-03-29_111519%20(2).png)
+![](https://github.com/ajmsrvr/app-dev/blob/resume/348355372_142215432186609_1534377490883542626_n.jpg)
 
 32 Road 1 San Miguel Heights, Marulas, Valenzuela City, 1440 <br>
 E-mail Address: ajamesriveraaa@gmail.com <br>
